@@ -1,0 +1,2 @@
+# funny
+Just for fun
